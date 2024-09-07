@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me nikhil_K1@bt.iitr.ac.in...
 - 😄 Pronouns
-- ⚡ Fun fact
+- ⚡ Fun fact I am a Ph.D. Scholar 😄
 
 <!---
 nikhil-k8/nikhil-k8 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
